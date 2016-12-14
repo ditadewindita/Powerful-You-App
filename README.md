@@ -1,2 +1,2 @@
 # Powerful-You-App
-App submissions of  Alexis, Ansley, and Haerunnisa
+App submissions of  Alexis, Ansley, and Dita
